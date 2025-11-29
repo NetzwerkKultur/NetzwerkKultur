@@ -3,7 +3,7 @@ layout: default
 title: "Netzwerk Kultur Kitzingen"
 ---
 
-# Kunstprojekt
+# Kunstprojekt - under construction
 
 
 
