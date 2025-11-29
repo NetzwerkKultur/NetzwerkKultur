@@ -14,3 +14,6 @@ sidebar:
   - name: Mastodon
     icon: 🐘
     link: https://mastodon.social/@NetzwerkKultur
+  - name: Impressum
+    icon: ⚒️
+    link: impressum.md
