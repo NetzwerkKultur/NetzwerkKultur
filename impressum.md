@@ -12,7 +12,7 @@ Wir sind kein eingetragener Verein und keine juristische Person, sondern eine fr
 
 **Verantwortlich für den Inhalt dieser Website:**  
 **Michael Hofmann**  
-E-Mail: [Netzwerk-Kultur@NoART.photography](mailto:NetzwerkKultur@NoART.photography)
+E-Mail: [Netzwerk-Kultur@NoART.photography](mailto:Netzwerk-Kultur@NoART.photography)
 
 ---
 
