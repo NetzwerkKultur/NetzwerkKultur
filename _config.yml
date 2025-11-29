@@ -2,3 +2,15 @@ title: "Netzwerk Kultur Kitzingen"
 plugins:
   - jekyll-remote-theme
 remote_theme: BDHU/minimalist
+logo: /helpics/logo.png
+favicon: true
+sidebar:
+  - name: GitHub
+    icon: <i class="fa-brands fa-github"></i>
+    link: https://github.com/NetzwerkKultur
+  - name: E-Mail
+    icon: ✉️
+    link: mailto:NetzwerkKultur@NoART.photography
+  - name: Mastodon
+    icon: 🖼️
+    link: https://mastodon.social/@NetzwerkKultur
