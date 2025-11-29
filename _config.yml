@@ -1,2 +1,4 @@
 title: "Netzwerk Kultur Kitzingen"
-theme: jekyll-theme-minimalist
+plugins:
+  - jekyll-remote-theme
+remote_theme: BDHU/minimalist
