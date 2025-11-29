@@ -7,8 +7,8 @@ title: Impressum
 
 **Angaben gemäß § 5 TMG**
 
-Dies ist die Website einer losen Vereinigung von Künstlerinnen und Künstlern aus dem Landkreis Kitzingen.  
-Wir sind kein eingetragener Verein und keine juristische Person, sondern eine freie Interessensgemeinschaft, die gemeinsame Ausstellungen organisiert, sich regelmäßig austauscht und gelegentlich eigene Kunstwerke präsentiert oder verlinkt.
+Dies ist die Website und der Mastodon-Stream einer losen Vereinigung von Künstlerinnen und Künstlern aus dem Landkreis Kitzingen.  
+Wir sind kein eingetragener Verein und keine juristische Person, sondern eine freie Interessensgemeinschaft, die gemeinsame Ausstellungen organisiert, sich regelmäßig austauscht und gelegentlich eigene Kunstwerke präsentiert.
 
 **Verantwortlich für den Inhalt dieser Website:**  
 **Michael Hofmann**  
