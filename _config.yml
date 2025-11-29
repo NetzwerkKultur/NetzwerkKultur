@@ -2,7 +2,7 @@ title: "Netzwerk Kultur Kitzingen"
 plugins:
   - jekyll-remote-theme
 remote_theme: BDHU/minimalist
-logo: /helpics/logo.png
+logo: /helpics/IMG_4916.jpeg
 favicon: true
 sidebar:
   - name: GitHub
