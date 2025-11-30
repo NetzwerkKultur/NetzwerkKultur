@@ -7,7 +7,7 @@ favicon: true
 sidebar:
   - name: GitHub
     icon: <i class="fa-brands fa-github"></i>
-    link: https://github.com/NetzwerkKultur
+    link: https://github.com/NetzwerkKultur/NetzwerkKultur
   - name: E-Mail
     icon: ✉️
     link: mailto:NetzwerkKultur@NoART.photography
@@ -16,4 +16,4 @@ sidebar:
     link: https://mastodon.social/@NetzwerkKultur
   - name: Impressum
     icon: ⚒️
-    link: impressum
+    link: https://netzwerkkultur.github.io/NetzwerkKultur/impressum
