@@ -16,7 +16,7 @@ Acrylfarben auf Leinwand, 116 x 75 cm
 
 Kitzingen in voller Pracht. Hadeloga, mit Schäfer Kitz, sowie seinen Schafen.  
 
-Kontak-Emailt: linkherbert (at) yahoo.de  
+* Kontakt-Email: linkherbert (at) yahoo.de  
 
 ---- 
 
