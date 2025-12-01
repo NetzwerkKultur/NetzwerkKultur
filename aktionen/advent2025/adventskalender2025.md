@@ -26,12 +26,12 @@ Kontakt-Email: linkherbert (at) yahoo.de
 ![](02_Leifeld.png)
 
 "*Weihnacht*"  
-von Susanne Leifeld
-Aquarell, 30 x 40 cm    
-120,- € im Passepartout
-150,- € mit Rahmen
+von Susanne Leifeld  
+Aquarell, 30 x 40 cm      
+120,- € im Passepartout  
+150,- € mit Rahmen  
 
-Kontakt-Email: info (at) peanut-gallery.de
+Kontakt-Email: info (at) peanut-gallery.de  
 
 ----
 
