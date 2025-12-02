@@ -10,7 +10,7 @@ Kunst aus Kitzingen und drum herum...
 ---- 
 ### 3. Türchen
 
-![](03_Brunsch.png)
+![](03_Brunsch.jpg)
 
 "*Eiskinder*"  
 Haiga von Gabriele Brunsch  
