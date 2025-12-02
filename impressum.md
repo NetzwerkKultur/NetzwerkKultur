@@ -34,7 +34,7 @@ Eine Verwendung, auch auszugsweise, ist ohne schriftliche Zustimmung der jeweili
 
 # Datenschutzhinweis
 
-Diese Website verwendet keine Cookies, keine Tracking-Tools und keine Analyse-Dienste.
+Diese Website verwendet keine Cookies und einen europäischen Analyse-Dienst.
 
 Serverseitig können durch GitHub automatisch technische Logdaten verarbeitet werden (z. B. IP-Adresse, Zugriffszeit, Browsertyp), auf die wir keinen Einfluss haben.  
 Weitere Informationen dazu finden Sie in der Datenschutzerklärung von GitHub:  
