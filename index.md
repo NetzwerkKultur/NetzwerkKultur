@@ -5,5 +5,4 @@ title: "Netzwerk Kultur Kitzingen"
 
 ### Willkommen
 
-* [Adentskalender 2025](aktionen/advent2025/adventskalender2025.md)
-* [Über uns](aboutUs.md) · 
+[Adentskalender 2025](aktionen/advent2025/adventskalender2025.md) · [über uns](aboutUs.md) 
