@@ -8,6 +8,18 @@ title: "Adventskalender 2025"
 Kunst aus Kitzingen und drum herum...
 
 ---- 
+### 4. Türchen
+
+![](04_Karres.jpg)  
+
+"*Panta Rhei*"  
+von Susanne Karres  
+Mischtechnik, 150 x 100 cm  
+1.500,- €  
+  
+Kontakt-Email: skkarres (at) gmx.de  
+
+---- 
 ### 3. Türchen
 
 ![](03_Brunsch.jpg)
