@@ -7,6 +7,19 @@ title: "Adventskalender 2025"
 
 Kunst aus Kitzingen und drum herum...
 
+
+----
+### 5. Türchen
+
+![](05_Klussmeier.jpg)  
+
+"*Engelsgleich*"  
+von Brigitte Klussmeier   
+Ton, aufwändig glasiert, hochgebrannt  
+300,- €  
+
+Kontakt-Email: Brigitte.Klussmeier (at) gmx.de 
+
 ---- 
 ### 4. Türchen
 
