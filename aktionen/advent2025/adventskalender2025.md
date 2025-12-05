@@ -9,6 +9,20 @@ Kunst aus Kitzingen und drum herum...
 
 
 ----
+### 6. Türchen
+
+![](06_Berneth.jpg)  
+
+"*Einschnitte*"  
+von Claus Peter Berneth  
+290,- € in weiß  
+390,- € in schwarz  
+
+Einschnitte sind oft verletzend, hart und scharf. Einschnitte prägen aber auch, ergeben oft definierte Strukturen. Claus Peter Berneth verwendet bewusst die Kreissäge, um klare Einschnitte zu realisieren. Faserbrüche im Holz lassen raue und markante Oberflächenstrukturen entstehen. Durch Einfärbung lässt sich die Dynamik der Strukturen steigern und individualisieren.
+
+Kontakt-Email: c.berneth (at) gmx.de  
+
+----
 ### 5. Türchen
 
 ![](05_Klussmeier.jpg)  
@@ -18,7 +32,7 @@ von Brigitte Klussmeier
 Ton, aufwändig glasiert, hochgebrannt  
 300,- €  
 
-Kontakt-Email: Brigitte.Klussmeier (at) gmx.de 
+Kontakt-Email: Brigitte.Klussmeier (at) gmx.de
 
 ---- 
 ### 4. Türchen
