@@ -7,6 +7,16 @@ title: "Adventskalender 2025"
 
 Kunst aus Kitzingen und drum herum...
 
+---- 
+### 7. Türchen
+
+![](07_VerslWaag.jpg)  
+
+"*Winterspaziergang*"  
+von Elisabeth Versl-Waag  
+Öl auf Leinwand, 80 x 100 cm  
+
+Kontakt-Email: e.versl.waag (at) googlemail.com  
 
 ----
 ### 6. Türchen
