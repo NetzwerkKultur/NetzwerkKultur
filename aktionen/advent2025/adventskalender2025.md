@@ -8,6 +8,18 @@ title: "Adventskalender 2025"
 Kunst aus Kitzingen und drum herum...
 
 ---- 
+### 8. Türchen
+
+![](08_Leuchtkraft.jpg)  
+
+"*Engel der Freude*"  
+von Ulla Leuchtkraft  
+Öllasuren auf Leinwand, 60 x 30 cm  
+285,- €  
+
+Kontakt-Email: ulla.leuchtkraft (at) t-online.de
+
+---- 
 ### 7. Türchen
 
 ![](07_VerslWaag.jpg)  
