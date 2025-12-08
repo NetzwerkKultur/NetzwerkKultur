@@ -8,6 +8,21 @@ title: "Adventskalender 2025"
 Kunst aus Kitzingen und drum herum...
 
 ---- 
+### 9. Türchen
+
+![](09_Huang.jpg)  
+
+"*Sonata Blu*"   
+von Huang Claire  
+Acryl auf Leinwand, 40 × 50 cm  
+250,- € ohne Rahmen  
+
+"Sonata Blu" ist eine poetische Hommage an die Harmonie zwischen Musik und Malerei. In einem Meer aus sanften Blau- und Türkistönen begegnen sich zwei Musikerinnen: die Pianistin in ruhiger, fließender Bewegung, die Violinistin in aufrechter, klarer Eleganz. Die Komposition verbindet Stille und Klang – als würde die Leinwand selbst zu einem Konzertsaal werden. Die rhythmischen Pinselstriche, die feinen Lichtakzente und die abstrahierten Figuren schaffen eine Atmosphäre voller Anmut, Konzentration und
+innerer Resonanz.  
+
+Kontakt-Email: clairepink1204 (at) yahoo.com.tw  
+
+---- 
 ### 8. Türchen
 
 ![](08_Leuchtkraft.jpg)  
