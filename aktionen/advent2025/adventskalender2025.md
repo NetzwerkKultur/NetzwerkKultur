@@ -8,6 +8,18 @@ title: "Adventskalender 2025"
 Kunst aus Kitzingen und drum herum...
 
 ---- 
+### 10. Türchen
+
+![](10_Vollhals.jpg)  
+
+"*Spaziergang*"  
+Acrylfarben, Strukturpaste, Pigmente, Kreide auf Leinwand,  
+mit weißen Holzrahmen, 60 x 60 cm  
+Preis: 400,- €  
+
+Kontakt-Email: gabriele_vollhals (at) web.de
+
+---- 
 ### 9. Türchen
 
 ![](09_Huang.jpg)  
