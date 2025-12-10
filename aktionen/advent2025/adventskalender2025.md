@@ -8,11 +8,24 @@ title: "Adventskalender 2025"
 Kunst aus Kitzingen und drum herum...
 
 ---- 
+### 11. Türchen
+
+![](11_Scheidig.jpg)  
+
+"*Bernsteinblick*"  
+von Anita Scheidig  
+Kohle/Aquarell, 30 x 40 cm
+150,00 € mit schwarzem Rahmen  
+
+Kontakt-Email: scheidig.art (at) gmail.com  
+
+---- 
 ### 10. Türchen
 
 ![](10_Vollhals.jpg)  
 
-"*Spaziergang*"  
+"*Spaziergang*"
+von Gabriele Vollhals  
 Acrylfarben, Strukturpaste, Pigmente, Kreide auf Leinwand,  
 mit weißen Holzrahmen, 60 x 60 cm  
 Preis: 400,- €  
