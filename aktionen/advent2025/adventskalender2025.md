@@ -14,7 +14,7 @@ Kunst aus Kitzingen und drum herum...
 
 "*Bernsteinblick*"  
 von Anita Scheidig  
-Kohle/Aquarell, 30 x 40 cm
+Kohle/Aquarell, 30 x 40 cm  
 150,00 € mit schwarzem Rahmen  
 
 Kontakt-Email: scheidig.art (at) gmail.com  
@@ -24,7 +24,7 @@ Kontakt-Email: scheidig.art (at) gmail.com
 
 ![](10_Vollhals.jpg)  
 
-"*Spaziergang*"
+"*Spaziergang*"  
 von Gabriele Vollhals  
 Acrylfarben, Strukturpaste, Pigmente, Kreide auf Leinwand,  
 mit weißen Holzrahmen, 60 x 60 cm  
