@@ -16,7 +16,7 @@ Kunst aus Kitzingen und drum herum...
 von Klaus Schneider  
 Acryl auf Hartfaser, 60 x 80 cm  
 
-![](11_Scheidig.jpg)  
+![](12_Schneider.jpg)  
 
 Kontakt-Email: atelierklaus (at) aol.com  
 Homepage: [Atelier Klaus Schneider](https://www.atelier-klausschneider.de)  
