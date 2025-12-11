@@ -10,7 +10,7 @@ Kunst aus Kitzingen und drum herum...
 ---- 
 ### 12. Türchen
 
-![](12_Schneider.jpg)  
+![](12_Schneider.jpg)
 
 "*Herbst*"  
 von Klaus Schneider  
