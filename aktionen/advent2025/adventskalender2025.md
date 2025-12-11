@@ -10,13 +10,11 @@ Kunst aus Kitzingen und drum herum...
 ---- 
 ### 12. Türchen
 
-![](12_Schneider.jpg)  
+![](12_KSchneider.jpg)  
 
 "*Herbst*"  
 von Klaus Schneider  
 Acryl auf Hartfaser, 60 x 80 cm  
-
-![](12_Schneider.jpg)  
 
 Kontakt-Email: atelierklaus (at) aol.com  
 Homepage: [Atelier Klaus Schneider](https://www.atelier-klausschneider.de)  
