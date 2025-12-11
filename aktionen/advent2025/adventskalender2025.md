@@ -8,6 +8,18 @@ title: "Adventskalender 2025"
 Kunst aus Kitzingen und drum herum...
 
 ---- 
+### 12. Türchen
+
+![](12_Schneider.jpg)  
+
+"*Herbst*"  
+von Klaus Schneider  
+Acryl auf Hartfaser, 60 x 80 cm  
+
+Kontakt-Email: atelierklaus (at) aol.com  
+Homepage: [Atelier Klaus Schneider](https://www.atelier-klausschneider.de)  
+
+---- 
 ### 11. Türchen
 
 ![](11_Scheidig.jpg)  
