@@ -8,6 +8,19 @@ title: "Adventskalender 2025"
 Kunst aus Kitzingen und drum herum...
 
 ---- 
+### 13. Türchen
+
+![](13_Hofmann.jpg)  
+
+"*Aufgewühlt*"  
+von Michael Hofmann  
+Farbfotografie, 60 x 80 cm  
+120,- €  
+
+kontakt-Email: atelier (at) NoART.photography  
+Homepage: [Michas Atelier](https://www.NoART.photography)  
+
+---- 
 ### 12. Türchen
 
 ![](12_KSchneider.jpg)  
