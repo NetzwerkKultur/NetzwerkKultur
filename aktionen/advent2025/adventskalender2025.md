@@ -8,6 +8,18 @@ title: "Adventskalender 2025"
 Kunst aus Kitzingen und drum herum...
 
 ---- 
+### 14. Türchen
+
+![](14_Kaiser.jpg)  
+
+"*Zwei Seelen in einer Brust*"      
+von Monica Kaiser  
+Keramik für den Garten  
+260,- €  
+
+kontakt-Email: monica (at) hertschi.de  
+
+---- 
 ### 13. Türchen
 
 ![](13_Hofmann.jpg)  
