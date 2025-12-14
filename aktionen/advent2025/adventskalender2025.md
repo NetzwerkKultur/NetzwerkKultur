@@ -8,6 +8,18 @@ title: "Adventskalender 2025"
 Kunst aus Kitzingen und drum herum...
 
 ---- 
+### 15. Türchen
+
+![](15_Braterschofsky.jpg)  
+
+"*longing*"  
+von Susanne Braterschofsky  
+Gemälde, 80 x 80 cm  
+800,- €  
+
+Kontakt-Email: ateliermaindesign (at) gmail.com
+
+---- 
 ### 14. Türchen
 
 ![](14_Kaiser.jpg)  
@@ -17,7 +29,7 @@ von Monica Kaiser
 Keramik für den Garten  
 260,- €  
 
-kontakt-Email: monica (at) hertschi.de  
+Kontakt-Email: monica (at) hertschi.de  
 
 ---- 
 ### 13. Türchen
@@ -29,7 +41,7 @@ von Michael Hofmann
 Farbfotografie, 60 x 80 cm  
 120,- €  
 
-kontakt-Email: atelier (at) NoART.photography  
+Kontakt-Email: atelier (at) NoART.photography  
 Homepage: [Michas Atelier](https://www.NoART.photography)  
 
 ---- 
