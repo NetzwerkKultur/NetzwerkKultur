@@ -8,6 +8,18 @@ title: "Adventskalender 2025"
 Kunst aus Kitzingen und drum herum...
 
 ---- 
+### 16. Türchen
+
+![](16_Wirkner.jpg)  
+
+"*Buchbrunn*"  
+von Harald Wirkner  
+Mischtechnik, Weinlaub überzogen mit Chinapapier, mit übermalt Acryl  
+(bereits verkauft)  
+
+Kontakt-Email: bauhaus_team (at) web.de
+
+---- 
 ### 15. Türchen
 
 ![](15_Braterschofsky.jpg)  
