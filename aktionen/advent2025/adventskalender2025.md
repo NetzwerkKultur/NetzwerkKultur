@@ -8,6 +8,17 @@ title: "Adventskalender 2025"
 Kunst aus Kitzingen und drum herum...
 
 ---- 
+### 17. Türchen
+
+![](17_Karres.jpg)  
+
+"*Frohe Botschaft*"  
+von Anja Karres  
+Acryl auf Holz im Goldrahmen, 30 x 40 cm  
+
+Kontakt-Email: anja.karres (at) gmx.de  
+
+---- 
 ### 16. Türchen
 
 ![](16_Wirkner.jpg)  
