@@ -8,6 +8,19 @@ title: "Adventskalender 2025"
 Kunst aus Kitzingen und drum herum...
 
 ---- 
+### 18. Türchen
+
+![](18_Haeberlein.jpg)  
+
+"*Chili Lilli*"  
+von Heike Anja Häberlein  
+Geschnitzt aus Lindenholz, mit Aquarellfarbe bemalt  
+Figur (ohne Sockel) ca 13 cm x 5 cm x 2,5 cm  
+395,- €  
+
+Kontakt-Email: heikeanja (at) t-online.de
+
+---- 
 ### 17. Türchen
 
 ![](17_Karres.jpg)  
