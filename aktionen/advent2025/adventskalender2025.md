@@ -8,6 +8,18 @@ title: "Adventskalender 2025"
 Kunst aus Kitzingen und drum herum...
 
 ---- 
+### 19. Türchen
+
+![](19_Nennmann.jpg)  
+
+"*ZART I*"  
+von Helmut Nennmann  
+Öl auf Leinwand, 100 x 100 cm  
+1.200,- €  
+
+Kontakt-Email: helmut (at) atelier-nennmann.de  
+
+---- 
 ### 18. Türchen
 
 ![](18_Haeberlein.jpg)  
