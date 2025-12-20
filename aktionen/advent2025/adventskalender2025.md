@@ -15,7 +15,7 @@ Kunst aus Kitzingen und drum herum...
 "*Der Clown*"  
 von Herbert Link    
 Acrylfarben auf Leinwand, 40 x 40 cm  
-
+200,- €  
 
 Kontakt-Email: linkherbert (at) yahoo.de  
 
