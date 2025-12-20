@@ -10,7 +10,7 @@ Kunst aus Kitzingen und drum herum...
 ---- 
 ### 21. Türchen
 
-![](21_Leifeld_2.jpg)
+![](21_leifeld_2.jpg)  
 
 "*Winterlandschaft*"  
 von Susanne Leifeld  
