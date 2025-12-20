@@ -7,6 +7,18 @@ title: "Adventskalender 2025"
 
 Kunst aus Kitzingen und drum herum...
 
+----
+### 20. Türchen
+
+![](20_Link_2.jpg)  
+
+"*Der Clown*"  
+von Herbert Link    
+Acrylfarben auf Leinwand, 40 x 40 cm  
+
+
+Kontakt-Email: linkherbert (at) yahoo.de  
+
 ---- 
 ### 19. Türchen
 
