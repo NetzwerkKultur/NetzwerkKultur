@@ -7,6 +7,17 @@ title: "Adventskalender 2025"
 
 Kunst aus Kitzingen und drum herum...
 
+---- 
+### 21. Türchen
+
+![](21_Leifeld_2.png)
+
+"*Winterlandschaft*"  
+von Susanne Leifeld  
+Aquarell  
+
+Kontakt-Email: info (at) peanut-gallery.de
+
 ----
 ### 20. Türchen
 
