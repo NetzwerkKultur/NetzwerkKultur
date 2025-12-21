@@ -51,4 +51,4 @@ Ich hol sie raus ...
 
 *von Gabriele Brunsch*
 
-![](helpics/Brataepfel.png)
+
