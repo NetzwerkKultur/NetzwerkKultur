@@ -7,10 +7,21 @@ title: "Adventskalender 2025"
 
 Kunst aus Kitzingen und drum herum...
 
+----
+### 22. Türchen
+
+![](22_Klussmeier_2.jpg)  
+
+"*Gottvertrauen*"  
+von Brigitte Klussmeier   
+Ton mit Zellulose auf Stahlgewebe montiert. Aufwändige Oberflächenbehandlung, u. a. mit Porzellan  
+
+Kontakt-Email: Brigitte.Klussmeier (at) gmx.de
+
 ---- 
 ### 21. Türchen
 
-![](21_leifeld_2.jpg)  
+![](21_Leifeld_2.jpg)  
 
 "*Winterlandschaft*"  
 von Susanne Leifeld  
