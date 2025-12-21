@@ -14,7 +14,7 @@ title: "Netzwerk Kultur Kitzingen"
 ----
 
 Die Künstlerinnen und Künstler des Netzwerkes wünschen    
-  F r o h e   W e i h n a c h t e n  
+  **Frohe Weihnachten**  
 und ein gutes, gesundes Jahr 2 0 2 6 !  
 
 
