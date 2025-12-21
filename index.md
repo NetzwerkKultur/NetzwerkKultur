@@ -49,6 +49,6 @@ Drum ist so gut der Duft im Haus!
 Gedeckt der Tisch!  
 Ich hol sie raus ...
 
-von Gabriele Brunsch
+*von Gabriele Brunsch*
 
 ![](helpics/Brataepfel.png)
