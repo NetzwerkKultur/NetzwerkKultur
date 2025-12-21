@@ -7,12 +7,13 @@ title: "Netzwerk Kultur Kitzingen"
 
 [Adentskalender 2025](aktionen/advent2025/adventskalender2025.md) · [über uns](aboutUs.md) 
 
-Die Künstlerinnen und Künstler des Netzwerkes wünschen  
-  F r o h e   W e i h n a c h t e n
-und ein gutes, gesundes Jahr 2 0 2 6 !
+Die Künstlerinnen und Künstler des Netzwerkes wünschen    
+  F r o h e   W e i h n a c h t e n  
+und ein gutes, gesundes Jahr 2 0 2 6 !  
 
 
-... ein Gedicht haben wir noch...
+
+Ein Gedicht haben wir noch...
 
 #### Bratäpfel
 
@@ -43,3 +44,5 @@ Gedeckt der Tisch!
 Ich hol sie raus ...
 
 von Gabriele Brunsch
+
+![](helpics/Brataepfel.png)
