@@ -14,7 +14,7 @@ Kunst aus Kitzingen und drum herum...
 
 "*Gottvertrauen*"  
 von Brigitte Klussmeier   
-Ton mit Zellulose auf Stahlgewebe montiert. Aufwändige Oberflächenbehandlung, u. a. mit Porzellan  
+Ton mit Zellulose auf Stahlgewebe montiert, aufwändige Oberflächenbehandlung, u. a. mit Porzellan  
 
 Kontakt-Email: Brigitte.Klussmeier (at) gmx.de
 
