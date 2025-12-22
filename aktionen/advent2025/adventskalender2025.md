@@ -10,7 +10,7 @@ Kunst aus Kitzingen und drum herum...
 ----
 ### 23. Türchen
 
-![](23_Jung_2.jpg)  
+![](23_Jung.jpg)  
 
 "*Weihnachtspastorale*"  
 von Carmen Jung  
