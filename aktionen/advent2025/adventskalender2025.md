@@ -8,6 +8,17 @@ title: "Adventskalender 2025"
 Kunst aus Kitzingen und drum herum...
 
 ----
+### 23. Türchen
+
+![](23_Jung_2.jpg)  
+
+"*Weihnachtspastorale*"  
+von Carmen Jung  
+100 x 80 cm  
+
+Kontakt-Email: jungcarmen (at) me.com  
+
+----
 ### 22. Türchen
 
 ![](22_Klussmeier_2.jpg)  
