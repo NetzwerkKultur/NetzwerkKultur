@@ -7,6 +7,17 @@ title: "Adventskalender 2025"
 
 Kunst aus Kitzingen und drum herum...
 
+---- 
+### 24. Türchen
+
+![](24_Karres_2.jpg)  
+
+"*Winterliche Idylle*"  
+von Susanne Karres  
+Mischtechnik 140 x 70 cm
+
+Kontakt-Email: skkarres (at) gmx.de  
+
 ----
 ### 23. Türchen
 
